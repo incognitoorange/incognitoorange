@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading and coding
 - 🌱 I’m currently learning thunkable
 - 💞️ I’m looking to collaborate on scratch
-- 📫 How to reach me with my number +2348033690422
+- 📫 How to reach me with my number 080999990999
 - 😄 Pronouns: caapstone,hero,kyle
 - ⚡ Fun fact: my bday is april 7th 2014
 - 
